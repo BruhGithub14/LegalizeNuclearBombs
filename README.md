@@ -1,0 +1,2 @@
+# LegalizeNuclearBombs
+Legalizing pirating games
